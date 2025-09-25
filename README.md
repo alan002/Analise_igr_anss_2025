@@ -1,0 +1,1 @@
+# Analise_igr_anss_2025
